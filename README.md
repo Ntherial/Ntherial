@@ -1,0 +1,2 @@
+# Ntherial
+discord
